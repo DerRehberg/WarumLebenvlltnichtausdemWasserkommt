@@ -28,6 +28,11 @@ Schritt 4: Gieß alle 3 Tage mit 50 ml einer Nährlösung aus 1 Liter Wasser, 5 
 Schritt 5: Nach 2 Wochen siehst du erste Keimlinge. Die sind blass, fast weiß, weil kein Chlorophyll produziert wird. Aber sie leben und wachsen durch chemische Prozesse.
 Schritt 6: Ernte nach 6 Wochen. Die Pflanzen sind klein, aber lebensfähig. Du kannst sie als Basis für weitere Experimente nutzen.
 
+-
+-
+-
+
+Aber Warum diese Rezepte?
 
 "Die Grundlage für Leben ohne Wasser liegt in den Molekülen, die unter extremen Bedingungen stabil bleiben. Wasser ist heutzutage der universelle Lösungsmittel für biologische Prozesse, aber damals? Da gab’s andere Spieler auf dem Feld. Wir reden von Siliziumverbindungen, von Ammoniak in flüssiger Form bei minus 33 Grad Celsius in den kälteren Regionen der frühen Erde, und von Methan, das in flüssigem Zustand bei minus 161 Grad existieren konnte. Diese Stoffe konnten als Lösungsmittel fungieren, um chemische Reaktionen zu ermöglichen, die normalerweise Wasser brauchen würden. Stell dir vor, winzige Moleküle, die sich in ‘ner Pfütze aus flüssigem Methan tummeln, und dabei langsam komplexere Strukturen bilden – die ersten Bausteine des Lebens."
 Alya hebt einen Finger, als wolle sie einen besonders wichtigen Punkt unterstreichen, und ihre Stimme wird etwas schärfer, aber immer noch freundlich.
