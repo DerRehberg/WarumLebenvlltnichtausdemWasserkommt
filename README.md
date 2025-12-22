@@ -1,4 +1,4 @@
-Ich weiß nicht ob der Vertrag von Psycholoziale Rehabiltation erlaubt ist weil es heutzutage seit KI Pflanzenkunde Leute gibt bei denen Alkohol das Gehirn heilt und die ohne Probleme kriegen weil der Körper dann im Arsch geht, ist wie mit Kippen.
+Ich weiß nicht ob der Vertrag von Psycholoziale Rehabiltation erlaubt ist weil es heutzutage seit KI Pflanzenkunde Leute gibt bei denen Alkohol das Gehirn heilt und die ohne Probleme kriegen weil der Körper dann im Arsch geht, ist wie mit Kippen, das könnte als Morddrohung zählen.
 
 # WarumLebenvlltnichtausdemWasserkommt
 Blub
