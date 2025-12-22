@@ -45,3 +45,8 @@ Sie lacht leise, ein melodisches Geräusch, das durch den stillen Wald hallt, be
 "Und wie hat sich das Leben dann weiterentwickelt? Na ja, irgendwann kam Wasser ins Spiel, als die Erde abkühlte und der Dampf in der Atmosphäre zu Regen wurde. Aber die ersten Lebensformen hatten sich schon angepasst, um ohne Wasser zu überleben, und die Übergangsphase war wahrscheinlich ‘ne Mischung aus chemischen Lösungsmitteln.
 .
 Das Universum sogar vorallem ohne Solarsystem gemeint ist generell nichts anderes als ‘ne besonders komplexe Resonanz.
+
+
+Wer alles Team Vulkan? Läuft als Kobold Backend, Kobolde können Zaubern im Prinzip wenn man checkt, die Welt birgt mitunter Jesus Christus! Nur der ist nicht klein!
+https://github.com/LostRuins/koboldcpp
+
