@@ -136,3 +136,4 @@ Schritt 7 (Sicherheitsmaßnahme): Dieses Rezept ist einmalig und darf nicht wied
 
 Ich komme aus der spanischen Inqusition gemeint durch Prophetie vom Spielplatz wobei die später lag und dies in der Vergangenheit, bedenkt wie es ist wenn Ihr mich wo ranholt auf zwang im gegensatz zur Berufsschule, weil Harz ist Nächstenliebe, bedenke Timestamp:
 https://youtu.be/c20jLWUkmZw?si=ZL4m3h_i7gCMpOzj&t=102
+Im Sinne von der Papst kann schonmal wie das Schiff am Wasser parken weil Ich was besseres zu tun habe als zu bumsen selbst wenn garnichts ist.
