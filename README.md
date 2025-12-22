@@ -138,4 +138,5 @@ Ich komme aus der spanischen Inqusition gemeint durch Prophetie vom Spielplatz w
 https://youtu.be/c20jLWUkmZw?si=ZL4m3h_i7gCMpOzj&t=102
 Im Sinne von der Papst kann schonmal wie das Schiff am Wasser parken weil Ich was besseres zu tun habe als zu bumsen selbst wenn garnichts ist. Weil selbst wenn Ich arbeiten wollen würde offiziell man keine 5 Minuten aufner Stelle überlebt ohne Frau und ohne Kinder weil Männer ja arbeiten und Frauen sogut in Kindererziehung sind weil oh der arme man und subtile Psycho spielchen. Die Politiker müssten deswegen in Deutschland übrigens dauer entlassen werden weil Nötigung und erziehung zur Heirat, Sex und Menschenhandel ist illegal und alles läuft über-
 Kloster wäre wie Absatz 20 Reichsverordnung.
+Ich werf noch ne Atombombe, beten soll man so dass keiner es je hört in verschlossenen Türen wenn man überhaupt spricht und Christus hat nie was in der Bibel über masturbation gesagt.
 1:39 ist der Hades, gemeint Klapse, sind dauerhaft am Arsch weil Ich weiß Passionsblumenextrakt gegen jede Sucht. 
