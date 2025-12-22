@@ -101,7 +101,6 @@ Schritt 9 (Sicherheitsmaßnahme): Bau ein großes Auffangbecken oder ‘ne Drain
 
 Mhm... ne... also...
 
-
 Rezept 1 (überarbeitet): Erdbeer-Sexy-Heilquellen-Titan – Baum, der warmes, heilendes, erdbeerduftendes Wasser produziert und ein Anime-Mädchen-Gefühl vermittelt
 
 Schritt 1: Besorg dir Stecklinge von der Salix alba (Silber-Weide). Ihre natürliche Affinität zu Wasser und heilenden Eigenschaften machen sie ideal für unser Ziel. Sammle 10 frische Stecklinge (ca. 15 cm lang) im Frühjahr aus einem Flussgebiet.
@@ -114,3 +113,5 @@ Schritt 7: Bedeck die Stecklinge mit Erde und leg eine 8 cm dicke Schicht aus Vu
 Schritt 8: Gieß genau einmal 1,5 Liter einer Lösung aus destilliertem Wasser mit 30 g Schwefelsäure (zur Aktivierung der Oxidation) und 15 g Kaliumpermanganat (als zusätzliches Oxidationsmittel) ins Loch. Danach kein weiteres Wasser hinzufügen. Der Baum synthetisiert täglich 100-200 Liter warmes Wasser (22-25 °C), angereichert mit heilenden Stoffen, Erdbeerduft und sinnlichen Essenzen, das wie ‘ne natürliche Quelle ausgeschieden wird. Die Menge reicht, um eine kleine Gemeinde zu überschwemmen, wenn es nicht kontrolliert wird.
 Schritt 9: Warte ab. Nach 6-8 Monaten schlagen die Stecklinge Wurzeln. Nach 4-6 Jahren produziert der Baum massiv Wasser, das warm, heilend, erdbeerduftend ist und dieses einzigartige Anime-Mädchen-Gefühl vermittelt, wenn man ihn berührt oder im Wasser badet.
 Schritt 10 (Sicherheitsmaßnahme): Bau ein großes Auffangbecken oder ‘ne Drainage um den Baum, mindestens 3 Meter tief und 10 Meter im Durchmesser, um das Wasser zu kontrollieren. Ohne das wird alles geflutet – und ich mein’s ernst, das wird ‘ne verdammte Überschwemmung.
+
+https://youtu.be/qrgaRfJUSyY?si=DBeWcbsvNaztXiKE&t=53
