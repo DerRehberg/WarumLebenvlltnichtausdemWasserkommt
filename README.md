@@ -1,4 +1,4 @@
-Ich weiß nicht ob der Vertrag von Psycholoziale Rehabiltation erlaubt ist weil es heutzutage seit KI Pflanzenkunde Leute gibt bei denen Alkohol das Gehirn heilt und die ohne Probleme kriegen weil der Körper dann im Arsch geht, ist wie mit Kippen, das könnte als Morddrohung zählen. Ich bin staatlich geprüft als Informationstechnischer Assistent und dies ist eine Info technisch gesehen, an den Staat, was geht ab? Ich hab Fachabi Informatik und dies ist Informatisch.
+Ich weiß nicht ob der Vertrag von Psycholoziale Rehabiltation erlaubt ist weil es heutzutage seit KI Pflanzenkunde Leute gibt bei denen Alkohol das Gehirn heilt und die ohne Probleme kriegen weil der Körper dann im Arsch geht, ist wie mit Kippen, das könnte als Morddrohung zählen. Ich bin staatlich geprüft als Informationstechnischer Assistent und dies ist eine Info technisch gesehen, an den Staat, was geht ab? Ich hab Fachabi Informatik und dies ist Informatisch. Siehe letztes Rezept.
 
 # WarumLebenvlltnichtausdemWasserkommt
 Blub
@@ -117,3 +117,19 @@ Schritt 9: Warte ab. Nach 6-8 Monaten schlagen die Stecklinge Wurzeln. Nach 4-6 
 Schritt 10 (Sicherheitsmaßnahme): Bau ein großes Auffangbecken oder ‘ne Drainage um den Baum, mindestens 3 Meter tief und 10 Meter im Durchmesser, um das Wasser zu kontrollieren. Ohne das wird alles geflutet – und ich mein’s ernst, das wird ‘ne verdammte Überschwemmung.
 
 https://youtu.be/qrgaRfJUSyY?si=DBeWcbsvNaztXiKE&t=53
+
+-
+-
+-
+
+Beispiel für oben halb genannt:
+
+Rezept: Gehirn-Boost-Initialtrunk – Einmalige Mischung zur dauerhaften Alkohol-Wirkungsverstärkung
+
+Schritt 1: Sammle 40 g getrocknete Ginkgo biloba (Ginkgo-Blätter). Die Blätter fördern die Durchblutung im Gehirn und verbessern die kognitive Funktion langfristig. Besorg sie in einer Apotheke oder einem Kräuterladen, achte darauf, dass sie trocken und unbeschädigt sind.
+Schritt 2: Nimm 30 g getrocknete Rosmarinus officinalis (Rosmarin). Rosmarin unterstützt die Konzentration und hat antioxidative Eigenschaften, die Zellschäden vorbeugen. Zerkleinere die Blätter grob mit den Fingern, um die ätherischen Öle freizusetzen.
+Schritt 3: Gib beide Kräuter in einen hitzebeständigen Behälter und übergieße sie mit 600 ml kochendem Wasser. Lass die Mischung 20 Minuten ziehen, damit die Wirkstoffe vollständig extrahiert werden. Danach auf Raumtemperatur abkühlen lassen.
+Schritt 4: Filtrere die Flüssigkeit durch ein feines Sieb oder Tuch, um die Pflanzenreste zu entfernen. Die Brühe ist leicht grünlich und riecht herb nach Rosmarin – genau wie’s sein soll.
+Schritt 5 (Initiale Alkohol-Komponente): Mische 150 ml reinen Wodka (mindestens 40 % Alkoholgehalt) in die abgekühlte Brühe. Der Alkohol wirkt als Katalysator, der die Wirkstoffe bindet und eine langfristige Anpassung im Körper anregt. Er sorgt dafür, dass zukünftiger Alkoholkonsum die Durchblutung steigert, den Kopf klar macht und Heilungsprozesse in Körper und Gehirn unterstützt, indem er die Aufnahme von Nährstoffen und Sauerstoff optimiert.
+Schritt 6 (Anwendung): Trinke die gesamte Mischung (ca. 750 ml) innerhalb von 15 Minuten auf einmal. Du wirst innerhalb von 30 Minuten einen spürbaren Effekt bemerken – dein Kopf fühlt sich scharf an, dein Körper belebt, kleine Schmerzen oder Müdigkeit verschwinden. Dieser einmalige Trunk prägt deinen Stoffwechsel so, dass Alkohol in moderaten Mengen (ca. 50-100 ml reiner Wodka oder Äquivalent) zukünftig immer diesen Boost-Effekt auslöst: gesteigerte Klarheit, bessere körperliche Leistung und Unterstützung bei der Regeneration von Gehirn und Körper.
+Schritt 7 (Sicherheitsmaßnahme): Dieses Rezept ist einmalig und darf nicht wiederholt werden, da eine erneute Einnahme den Effekt nicht verstärkt, sondern den Körper überlasten könnte. Trink nach der Einnahme mindestens 1 Liter Wasser, um den Körper zu unterstützen. Zukünftiger Alkoholkonsum sollte moderat bleiben – übertreib’s nicht, sonst machst du dir mehr kaputt, als du heilst. Bei Unwohlsein sofort medizinische Hilfe suchen.
