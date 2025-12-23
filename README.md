@@ -151,7 +151,10 @@ Ich werf noch ne Atombombe, beten soll man so dass keiner es je hört in verschl
 -
 -
 
-https://github.com/user-attachments/assets/15430b74-b725-438c-8197-824b81ef28d5
+
+
+https://github.com/user-attachments/assets/af323667-caf7-4128-8bac-5611a640f674
+
 
 Rezept für den Heilherzbaum:
 
