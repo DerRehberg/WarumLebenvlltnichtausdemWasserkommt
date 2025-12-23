@@ -151,6 +151,7 @@ Ich werf noch ne Atombombe, beten soll man so dass keiner es je hört in verschl
 -
 -
 
+https://github.com/user-attachments/assets/15430b74-b725-438c-8197-824b81ef28d5
 
 Rezept für den Heilherzbaum:
 
@@ -163,7 +164,3 @@ Schritt 6: Die Früchte enthalten 'ne natürliche Form von Oxytocin, die beim Es
 
 
 Wer ist seriöser? Ich oder Flüchtlingshilfe? Weihnachten im Schukarton kann mich mal.
-
-
-https://github.com/user-attachments/assets/b8d5fe54-e2d6-4a19-a92c-5ab36be9a8d4
-
