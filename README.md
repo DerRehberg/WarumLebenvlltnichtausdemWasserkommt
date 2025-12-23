@@ -134,6 +134,10 @@ Schritt 5 (Initiale Alkohol-Komponente): Mische 150 ml reinen Wodka (mindestens 
 Schritt 6 (Anwendung): Trinke die gesamte Mischung (ca. 750 ml) innerhalb von 15 Minuten auf einmal. Du wirst innerhalb von 30 Minuten einen spürbaren Effekt bemerken – dein Kopf fühlt sich scharf an, dein Körper belebt, kleine Schmerzen oder Müdigkeit verschwinden. Dieser einmalige Trunk prägt deinen Stoffwechsel so, dass Alkohol in moderaten Mengen (ca. 50-100 ml reiner Wodka oder Äquivalent) zukünftig immer diesen Boost-Effekt auslöst: gesteigerte Klarheit, bessere körperliche Leistung und Unterstützung bei der Regeneration von Gehirn und Körper.
 Schritt 7 (Sicherheitsmaßnahme): Dieses Rezept ist einmalig und darf nicht wiederholt werden, da eine erneute Einnahme den Effekt nicht verstärkt, sondern den Körper überlasten könnte. Trink nach der Einnahme mindestens 1 Liter Wasser, um den Körper zu unterstützen. Zukünftiger Alkoholkonsum sollte moderat bleiben – übertreib’s nicht, sonst machst du dir mehr kaputt, als du heilst. Bei Unwohlsein sofort medizinische Hilfe suchen.
 
+-
+-
+-
+
 Ich komme aus der spanischen Inqusition gemeint durch Prophetie vom Spielplatz wobei die später lag und dies in der Vergangenheit, bedenkt wie es ist wenn Ihr mich wo ranholt auf zwang im gegensatz zur Berufsschule, weil Harz ist Nächstenliebe, bedenke Timestamp:
 https://youtu.be/c20jLWUkmZw?si=ZL4m3h_i7gCMpOzj&t=102
 Im Sinne von der Papst kann schonmal wie das Schiff am Wasser parken weil Ich was besseres zu tun habe als zu bumsen selbst wenn garnichts ist. Weil selbst wenn Ich arbeiten wollen würde offiziell man keine 5 Minuten aufner Stelle überlebt ohne Frau und ohne Kinder weil Männer ja arbeiten und Frauen sogut in Kindererziehung sind weil oh der arme man und subtile Psycho spielchen. Die Politiker müssten deswegen in Deutschland übrigens dauer entlassen werden weil Nötigung und erziehung zur Heirat, Sex und Menschenhandel ist illegal und alles läuft über-
@@ -141,3 +145,25 @@ und meine Eltern meckern nur und meinen Ich solle den Arsch hochkriegen, weil wo
 Kloster wäre wie Absatz 20 Reichsverordnung.
 Ich werf noch ne Atombombe, beten soll man so dass keiner es je hört in verschlossenen Türen wenn man überhaupt spricht und Christus hat nie was in der Bibel über masturbation gesagt.
 1:39 ist der Hades, gemeint Klapse, sind dauerhaft am Arsch weil Ich weiß Passionsblumenextrakt gegen jede Sucht. 
+
+
+-
+-
+-
+
+
+Rezept für den Heilherzbaum:
+
+Schritt 1: Besorg dir 'nen Samen von 'ner Malus sylvestris – das is 'n Wildapfelbaum, nix Exotisches, findeste in vielen Wäldern. Der Samen muss frisch sein, also direkt nach der Ernte, nicht älter als 'ne Woche. Am besten aus 'nem alten Wald, wo die Bäume mindestens 30 Jahre aufm Buckel haben, da steckt mehr Leben drin.
+Schritt 2: Nimm 1 Liter Quellwasser – kein Leitungswasser, das is voller Dreck. Muss aus 'ner natürlichen Quelle kommen, idealerweise 'n klarer Bach. Misch das Wasser mit 100 Gramm getrocknetem Valeriana officinalis – also Baldrianwurzel. Zerkleiner die Wurzel mit 'nem Messer in kleine Stücke, nicht pulverisieren, und lass das Ganze 48 Stunden bei 20 Grad Celsius ziehen. Nicht wärmer, sonst verlierste die Wirkstoffe.
+Schritt 3: Filter die Mischung durch 'nen feinen Stoff, Leinen is am besten, kein Papier, das saugt zu viel auf. Die Flüssigkeit sollte leicht gelblich sein, das is normal. Nimm 20 Milliliter davon und träufle es auf den Samen. Wickel den Samen in 'n feuchtes Tuch und lass ihn 72 Stunden bei 22 Grad Celsius keimen. Nicht länger, sonst fängt er an zu faulen.
+Schritt 4: Pflanz den gekeimten Samen in 'nen großen Topf mit nährstoffreicher Erde, am besten Waldboden, den du mit 200 Gramm frischem Taraxacum officinale – also Löwenzahn, die ganzen Blätter – vermischt hast. Hack den Löwenzahn fein, bevor du ihn untermischst. Gieß jeden Tag mit 300 ml normalem Wasser, aber jeden vierten Tag mischst du 10 ml von der Baldrian-Essenz rein. Mach das für 4 Wochen, bis der Keimling etwa 50 cm groß is.
+Schritt 5: Setz den Keimling in freie Natur, an 'nen sonnigen Ort mit lockerer, feuchter Erde. Grab 'n Loch, etwa 80 cm tief, setz ihn rein und deck ihn mit der gleichen Löwenzahn-Erde-Mischung zu. Gieß weiterhin täglich mit 500 ml Wasser, und einmal pro Woche träufelst du 5 ml der Essenz auf die Rinde. Nach genau 3 Monaten sollte der Baum ausgewachsen sein, etwa 3 Meter hoch, und alle 3 Wochen Früchte tragen, die so groß wie 'ne Grapefruit sind.
+Schritt 6: Die Früchte enthalten 'ne natürliche Form von Oxytocin, die beim Essen freigesetzt wird. Sie fördern Heilung – kleine Wunden schließen sich schneller, und du fühlst dich emotional ausgeglichen, fast wie nach 'ner tiefen Umarmung. Keine Sorge, sie machen nicht süchtig, weil die Dosis so niedrig is, dass dein Körper nicht abhängig wird. Iss maximal 2 Früchte pro Tag, sonst übertreibste es mit dem Wohlgefühl und wirst vielleicht zu weich. Sammel sie in 'nem Korb, lagere sie kühl, nicht über 15 Grad, sonst verlieren sie die Wirkung.
+
+
+Wer ist seriöser? Ich oder Flüchtlingshilfe? Weihnachten im Schukarton kann mich mal.
+
+
+https://github.com/user-attachments/assets/b8d5fe54-e2d6-4a19-a92c-5ab36be9a8d4
+
