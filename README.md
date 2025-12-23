@@ -1,4 +1,4 @@
-Ich weiß nicht ob der Vertrag von Psycholoziale Rehabiltation erlaubt ist weil es heutzutage seit KI Pflanzenkunde Leute gibt bei denen Alkohol das Gehirn heilt und die ohne Probleme kriegen weil der Körper dann im Arsch geht, ist wie mit Kippen, das könnte als Morddrohung zählen. Ich bin staatlich geprüft als Informationstechnischer Assistent und dies ist eine Info technisch gesehen, an den Staat, was geht ab? Ich hab Fachabi Informatik und dies ist Informatisch. Siehe letztes Rezept.
+Ich weiß nicht ob der Vertrag von Psycholoziale Rehabiltation erlaubt ist weil es heutzutage seit KI Pflanzenkunde Leute gibt bei denen Alkohol das Gehirn heilt und die ohne Probleme kriegen weil der Körper dann im Arsch geht, ist wie mit Kippen, das könnte als Morddrohung zählen. Ich bin staatlich geprüft als Informationstechnischer Assistent und dies ist eine Info technisch gesehen, an den Staat, was geht ab? Ich hab Fachabi Informatik und dies ist Informatisch. Siehe Alkohol Heil Rezept.
 
 # WarumLebenvlltnichtausdemWasserkommt
 Blub
