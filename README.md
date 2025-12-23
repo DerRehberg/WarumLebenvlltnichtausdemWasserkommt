@@ -173,5 +173,3 @@ Wer ist seriöser? Ich oder Flüchtlingshilfe? Weihnachten im Schukarton kann mi
 -
 
 Keiner kann mir sagen dass die Wissenschaftler diese ganze kacke soweit funktionierend nicht wussten.
-
-<img width="795" height="815" alt="image" src="https://github.com/user-attachments/assets/0ab1c3d4-c987-453e-a90b-f070f5c4fa0f" />
